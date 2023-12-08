@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+- 🔭 I’m currently working on 😭😭 Raman Spectroscopy 😭😭
+- 🌱 I’m currently learning 😭😭 Raman Spectroscopy 😭😭
+- 👯 I’m looking to collaborate on 😭😭 Raman Spectroscopy 😭😭
+- 🤔 I’m looking for help with 😭😭 Raman Spectroscopy 😭😭
+
 <!--
 **akraradets/akraradets** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
